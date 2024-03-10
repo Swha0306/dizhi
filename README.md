@@ -1,16 +1,13 @@
-:bangbang::bangbang: 最新地址发布:bangbang::bangbang:
-==
-:fire: :point_right: 【韩漫地址一】 ：https://www.hanmantianxia.com
+
+:火: :点右:【韩漫地址二】:https://www.hanmanzx.com
 ------
-:fire: :point_right: 【韩漫地址二】 ：https://www.hanmanzx.com
+:火: :点右:【小说地址一】:https://www.seqingxiaoshuo.net
 ------
-:fire: :point_right: 【小说地址一】 ：https://www.seqingxiaoshuo.net
+:火: :点右:【小说地址二】:https://www.smxiaoshuo.net
 ------
-:fire: :point_right: 【小说地址二】 ：https://www.smxiaoshuo.net
+:地球子午线: :点右:【海外地址】:https://www.sesemanhua.com
 ------
-:globe_with_meridians: :point_right: 【海外地址】 ：https://www.sesemanhua.com
-------
-:white_check_mark: 【邮箱联系方式】 ：33a55a77@mail.com 
+:白色_复选标记:【邮箱联系方式】:33a55a77@mail.com
 ------
 ------
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
